@@ -1,5 +1,5 @@
 
-# Hi there, I'm Gillela Reddy Yeshawini! 👋
+# Hi there, I'm Gillela Reddy Yeshaswini! 👋
 
 🎓 **3rd Year B.Tech Student | CSE (AI & ML)**
 
